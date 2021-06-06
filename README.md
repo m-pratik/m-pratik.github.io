@@ -1,1 +1,1 @@
-# m-pratik.github.io
+# wizPratik.github.io
